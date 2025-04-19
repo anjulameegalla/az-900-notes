@@ -4,7 +4,7 @@ You can download my short notes PDF here - https://drive.google.com/file/d/1d6da
 
 Study materials that I used (free):
 
-- Practice questions detailed explanation by sthithapragna (GOAT) — https://youtube.com/playlist?list=PL7GozF-qZ4KfKB9ZHW3ZiW1Yv6Z6CT8ma
+- Practice questions detailed explanation by sthithapragna (GOAT) — [!Link](https://youtube.com/playlist?list=PL7GozF-qZ4KfKB9ZHW3ZiW1Yv6Z6CT8ma)
 
 - Exam cram by Pete Zerger —  https://youtu.be/8n-kWJetQRk
 
