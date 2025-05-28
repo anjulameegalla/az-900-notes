@@ -1,4 +1,4 @@
-You can download my short notes PDF here - [Link](https://drive.google.com/file/d/1d6daLN8QhrmXZkZkMrh6nMcpuI4WwxaM/view?usp=drive_link)
+You can download my short notes PDF here - [Link](https://drive.google.com/file/d/1d6daLN8QhrmXZkZkMrh6nMcpuI4WwxaM/view?usp=drive_link)  (No digital notes available. Will update soon)
 
 <br>
 
