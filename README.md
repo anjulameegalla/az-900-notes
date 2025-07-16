@@ -1,4 +1,4 @@
-You can download my short notes PDF here - [Link](https://drive.google.com/file/d/1d6daLN8QhrmXZkZkMrh6nMcpuI4WwxaM/view?usp=drive_link)  (No digital notes available. Will update soon)
+You can download my short notes PDF here - [Link](AZ-900 short notes by Anjula.pdf)  (No digital notes available. Will update soon)
 
 <br>
 
