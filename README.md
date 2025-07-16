@@ -2,4 +2,4 @@
 
 <br>
 
-Good luck to those that will be taking the exam soon!
+### Good luck with the exam!
