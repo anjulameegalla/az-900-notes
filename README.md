@@ -1,10 +1,8 @@
-You can download my short notes PDF here - [Link](AZ-900 short notes by Anjula.pdf)  (No digital notes available. Will update soon)
+You can download my short notes PDF here (No digital notes available. Will update soon)
 
 <br>
 
 Study materials that I used (free):
-
-- Practice questions detailed explanation by sthithapragna (GOAT) — [Link](https://youtube.com/playlist?list=PL7GozF-qZ4KfKB9ZHW3ZiW1Yv6Z6CT8ma)
 
 - Exam cram by Pete Zerger —  [Link](https://youtu.be/8n-kWJetQRk)
 
