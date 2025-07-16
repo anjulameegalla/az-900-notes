@@ -1,4 +1,4 @@
-No digital notes available. Will update soon.
+### Note: No digital notes available. Will update soon.
 
 <br>
 
